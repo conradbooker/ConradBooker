@@ -1,3 +1,3 @@
-Hey, I'm Conrad!
-Currently a Junior in highschool, NY, NY.
-I'm a climber, I also love cycling and cooking.
+hey, i'm conrad!
+17 yo, junior in at trinity school nyc.
+climber, mother, father, chef, biker, love anything transit...
