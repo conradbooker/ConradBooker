@@ -1,3 +1,1 @@
-hey, i'm conrad!
-17 yo, junior in at trinity school nyc.
-climber, mother, father, chef, biker, love anything transit...
+how did u get here
