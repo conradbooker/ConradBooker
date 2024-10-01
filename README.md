@@ -1,3 +1,3 @@
 hey im 18 and from NYC
 
-incoming freshman at northwestern
+i am a first year at northwestern university
