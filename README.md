@@ -1,4 +1,4 @@
 Hey, I'm Conrad!
 
-I am currently a sophomore at Northwestern University, pursuing a combined BA degree in Computer Science.
-My interests are in mobile app development, as well as full stack web dev and also AI.
+I a student at Northwestern University, pursuing a Bachelors in Computer Science.
+My interests are in React Native and Swift Mobile Development, as well as fullstack systems.
