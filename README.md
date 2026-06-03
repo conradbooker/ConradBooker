@@ -1,4 +1,1 @@
-Hey, I'm Conrad!
-
-I a student at Northwestern University, pursuing a Bachelors in Computer Science.
-My interests are in React Native and Swift Mobile Development, as well as fullstack systems.
+hey i'm conrad --- i'm a student at northwestern university studying computer science and architecture. i like making apps and software; node, react, and swift :)
